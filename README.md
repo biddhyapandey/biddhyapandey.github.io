@@ -1,1 +1,0 @@
-Biddhya's homepage
